@@ -1,0 +1,1 @@
+# Akparat-olchem-birliktery
